@@ -1,0 +1,1 @@
+<a href="https://www.freepik.com/free-vector/modern-wide-presentation-banner-black-white-shade_13304677.htm#query=black%20white%20banner&position=43&from_view=keyword&track=ais">Image by starline</a> on Freepik

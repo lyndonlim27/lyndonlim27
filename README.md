@@ -5,10 +5,6 @@
   
 
 
-<h1 align="center">
-Most used languages
-</h1>
-
 
 <!--
 **lyndonlim27/lyndonlim27** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
